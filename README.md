@@ -7,5 +7,4 @@ Meu nome é Beatriz Dos Santos
 
 
 
-![image](https://github.com/user-attachments/assets/70898301-7816-4632-8cee-27e550592a90)![image](https://github.com/user-attachments/assets/7613209e-c6f0-482f-8093-94296e34f2a7)
-
+![image](https://github.com/user-attachments/assets/70898301-7816-4632-8cee-27e550592a90) 
